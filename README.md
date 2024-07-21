@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Astound
-- 👀 I’m an Undergraduate student of IIT Kharagpur
+- 👀 I’m a recent graduate from IIT Kharagpur
 - 📫 You can reach me at aryachandanreddy@gmail.com ...
 
 <!---
